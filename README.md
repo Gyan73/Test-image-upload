@@ -15,3 +15,7 @@
 ![60bdf0da46532b949c9f3b4aad841bc6c1321b6c](https://github.com/user-attachments/assets/bd41eab0-973a-4e7f-b8a4-40ca1ee00588)
 ![fc8e183f8e3f14cadcdf24a3b4be4381521661d4](https://github.com/user-attachments/assets/1a6a48cb-39ab-44f1-b872-e2f29841cf23)
 
+<img width="120" height="120" alt="ChatGPT Image Nov 15, 2025, 08_28_38 AM 1" src="https://github.com/user-attachments/assets/1dd2f12a-f2e1-4ea5-842e-5d53d636c44e" />
+<img width="120" height="120" alt="image 56" src="https://github.com/user-attachments/assets/de98d607-5ac6-4c5e-96e4-9a78ffb289c2" />
+<img width="120" height="120" alt="paytm-square" src="https://github.com/user-attachments/assets/ad46f850-2a10-482d-a2e3-e121ed973721" />
+<img width="120" height="120" alt="phonepe-square" src="https://github.com/user-attachments/assets/e514be20-6812-4ebf-8a42-5130dabe0e2f" />
