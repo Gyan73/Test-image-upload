@@ -19,3 +19,6 @@
 <img width="120" height="120" alt="image 56" src="https://github.com/user-attachments/assets/de98d607-5ac6-4c5e-96e4-9a78ffb289c2" />
 <img width="120" height="120" alt="paytm-square" src="https://github.com/user-attachments/assets/ad46f850-2a10-482d-a2e3-e121ed973721" />
 <img width="120" height="120" alt="phonepe-square" src="https://github.com/user-attachments/assets/e514be20-6812-4ebf-8a42-5130dabe0e2f" />
+<img width="313" height="86" alt="image 55" src="https://github.com/user-attachments/assets/cbcf2ee7-ca71-4c73-ac66-66ec8f84e33e" />
+<img width="120" height="71" alt="18929dab4076c226c4425684c28a0b0a4e5136b4" src="https://github.com/user-attachments/assets/76a6452a-2d80-4a25-8c92-839c015de81f" />
+<img width="202" height="63" alt="Clip path group" src="https://github.com/user-attachments/assets/0ac305d3-895c-4044-b38d-6346cdd94f3b" />
