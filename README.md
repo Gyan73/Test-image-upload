@@ -32,3 +32,12 @@
 ![cb31796498b35b8acfc7d8a24e9ab2f600540250](https://github.com/user-attachments/assets/d47ad0f3-0a2a-4637-8700-56e1d5deab1c)
 
 
+<img width="256" height="54" alt="317a4fc3051b108cc8362e0ef1053cf6ff60397e" src="https://github.com/user-attachments/assets/aaed864d-8c9b-47e6-8f54-442fe8d8d3e3" />
+<img width="92" height="92" alt="9618b3109488b8ab4e3c482af40a38ceb4bab042" src="https://github.com/user-attachments/assets/9186c11f-6335-40b6-8af2-dafc4ccfedb2" />
+<img width="269" height="80" alt="logo_tata_power_ez_charge 1" src="https://github.com/user-attachments/assets/6f58c16c-dd30-41e2-8db9-d2dd4824ec1b" />
+<img width="254" height="80" alt="logo (1) 1" src="https://github.com/user-attachments/assets/0126ca58-dcd5-428e-b38c-8b984f9dc2bf" />
+<img width="576" height="430" alt="283cefcd7391435f5f6dd6c290d0ebc563c9b762" src="https://github.com/user-attachments/assets/4b086c82-7151-41b5-b909-8551a02c3089" />
+<img width="720" height="720" alt="d72868721d2e58b49b10f16f10882388eb2caed6" src="https://github.com/user-attachments/assets/38a4d297-a671-4ba2-8a9d-9dc021cb117b" />
+<img width="260" height="116" alt="ab6fead5dbdf71959990fe7314b97d62e9f425ba" src="https://github.com/user-attachments/assets/2ead7413-5404-42f1-9ce3-90d0d5cddb30" />
+<img width="994" height="575" alt="0d031212d18f7720b05f59c8530b86ca1a595d2c" src="https://github.com/user-attachments/assets/edebe958-03a5-4111-aa0c-5a5dfd854546" />
+<img width="120" height="71" alt="18929dab4076c226c4425684c28a0b0a4e5136b4" src="https://github.com/user-attachments/assets/78f60dbb-11be-4a32-a866-fdf7a3c38183" />
